@@ -7,6 +7,7 @@ But I'm open to all opportunities!
 Feel free to contact me on my different networks: 
 
 LinkedIn : https://www.linkedin.com/in/martin-cavil/
+
 Discord : martincvl#3781
 
 My portfolio is coming soon 👀
