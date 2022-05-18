@@ -1,8 +1,8 @@
 # Hello! My name is Martin 👨‍💻
 
-After a bachelor in Web Marketing and 2, 5 years as a Web Marketer (SEO, Growth, UX), I did the bootcamp Le Wagon in order to acquire tech skills and become a freelance front-end developer.
+After a bachelor in Web Marketing and 2, 5 years as a Web Marketer (SEO, Growth, UX), I did the bootcamp Le Wagon in order to acquire tech skills and become a front-end developer.
 
-But I'm open to all opportunities!
+I'm open to all opportunities!
 
 Feel free to contact me on my different networks: 
 
