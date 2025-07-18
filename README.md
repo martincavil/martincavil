@@ -13,6 +13,8 @@ I work well both independently and as part of a team. I enjoy projects where the
 
 🧑‍💻 My portfolio 👉 https://martincavil.com/
 
+Linkedin 👉 https://www.linkedin.com/in/martin-cavil/
+
 📩 Let’s talk! 👉 martin.cavil98@gmail.com
 
 
